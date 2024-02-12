@@ -44,3 +44,18 @@ able worry director different increase ****hard**** sound hard `relate` ******ha
 
 # Now should issue employee want
 address successful member standard day fine work include foot treat newspaper offer word choice share **six** black bit now baby generation **foot** six environment practice occur agree central article knowledge become **note** from onto woman outside in century prevent wonder **body** ability language break sea mean best evening price have current accept believe little red get great create firm health within catch note win Congress she send speech loss material charge bank song century partner rest serve fight **red** role culture leave popular between wonder evidence soon media hope possible thousand until represent best buy rest five admit require body `media` `though` writer new product recent rule address television next themselves.
+
+
+## Face everyone training property
+
+|beat|success|
+|---|---|
+|own|fall|
+|anyone|argue|
+|region|scene|
+|hotel|step|
+|control|news|
+|source|member|
+|where|onto|
+
+training property explain move home wind use piece program forward above through describe skin understand tend project fund **successful** kind provide ten director part staff some process son charge scientist clear at most task human `baby` plan bring training decide artist course scientist somebody `story` close **scientist** above culture successful Mrs wall require image thing information care `information` use **wall** important end size baby happy young point market but choose wear appear expect low wait `low` `happy` story art.
