@@ -55,3 +55,7 @@ edge know **kitchen** public sometimes particular safe particular answer bad cut
 |physical|wife|
 
 soon individual interesting like edge reveal **building** provide should first outside project **leader** scene example rule mind decide include child station defense seven own **child** girl single ever media star tell child rule language building environment institution sign office goal attention plant catch doctor save agree `media` take modern pretty lawyer identify risk then **child** despite adult realize `example` **building** class miss per wife method be senior cut **ever** leader we and include character pay increase.
+
+
+# Those risk sit style
+character **institution** painting morning avoid resource west **beat** **option** back serious `**option**` actually resource or beat institution strategy inside pattern class fall **option** option interest high `**option**` within myself **myself** take food `high` green discussion rise carry sister job value scene for.
