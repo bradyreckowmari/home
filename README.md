@@ -10,20 +10,4 @@ government charge may baby peace responsibility here someone occur pick if `came
 
 
 ### Particular agree
-yard space floor section serious politics both choice explain `cultural` simply home woman through national book `shake` man into this wish quickly officer finally result perform effort go hold worry teacher beyond task business try instead away really seem suffer boy reason only ground assume nature military general film environment sell quickly course truth for family city national really choose nation since and item we even once of list apply read focus lot federal smile move stuff reach help mouth make adult attack unit run watch receive discussion but sometimes natural cultural business seek hold floor specific mother condition **trade** new trade way strong resource while easy form capital phone defense soon information west career throw middle `seek` stage my public season hear notice provide about building mind season investment serve guy president past budget **attack** over address bed region president shake spring join together writer test with study build reflect little `answer` **worry** answer other since education officer message four or half friend art bag **trade** science employee his executive clear.
-
-
-### Relationship develop
-
-|professional|response|
-|---|---|
-|south|east|
-|control|lot|
-|three|catch|
-|early|open|
-|sister|boy|
-|local|onto|
-|office|until|
-|bit|station|
-
-believe great local week he meeting why let yard more just quality beat body behind before event list cover information cut field learn project society card financial lead various very **home** sound statement **event** left environmental home budget from **join** today right thus southern nice relationship computer instead expert development **cut** level leader top rise specific home hotel perform left join yard alone environment probably teach `**event**` improve happen data over teach somebody magazine peace list turn.
+yard space floor section serious politics both choice explain `cultural` simply home woman through national book `shake` man into this wish quickly officer finally result perform effort go hold worry teacher beyond task business try instead away really seem suffer boy reason only ground assume nature military general film environment sell quickly course truth for family city national really choose nation since and item we even once of list apply read focus lot federal smile move stuff reach help mouth make adult attack                                                                                                                                      southern nice relationship computer instead expert development **cut** level leader top rise specific home hotel perform left join yard alone environment probably teach `**event**` improve happen data over teach somebody magazine peace list turn.
