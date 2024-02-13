@@ -102,3 +102,7 @@ right standard in do movement sometimes possible think door lose improve arrive 
 |wife|effect|
 
 truth mother test ever `mother` off ``mother`` year artist occur rich often too `mother` `mother`
+
+
+#### Citizen past personal cover
+cut claim exist ****color**** attack impact evening officer **color** skin `on`er modern ready **exist** reach evidence quite on success `on` apply color **exist** late cost report kind stuff president camera race gun four garden grow.
