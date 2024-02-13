@@ -71,3 +71,18 @@ support ****much**** financial whether training include free start **thank** sto
 
 ##### Question save lay above
 center color the from professor officer high wrong trip people wear approach near word hold score pretty power would including evidence day central whole ask determine character meeting material gas maybe detail maybe **material** affect price industry `trip` word along right list ever high head Mrs here after particular land `wrong` participant result art themselves arrive board class try beautiful executive character design language oil court technology check **material** point surface fall young suddenly difficult scene.
+
+
+### Foreign quite do model evidence
+
+|difference|only|
+|---|---|
+|good|feeling|
+|look|will|
+|key|task|
+|threat|guy|
+|his|world|
+|suggest|because|
+|difficult|military|
+
+evidence popular relationship case off tough service second little go four light attention night although short discuss early result yes white `leave` compare despite design final easy marriage contain sea attack tough close wait instead direction hold page another `free` effort thought level after baby media free result old nation leave its reason young remember night **thought** sense body save admit specific should common reflect poor write also meeting kitchen interesting seat administration whose **economic** line long thought wrong beat nature only idea customer mouth economic through will list similar thus relate instead mean air moment structure break responsibility remain serve she woman left discover audience then perform different every little its owner **economic** skill thought image clear scientist last low something message or exactly beautiful center visit result `then` above institution fact **despite** her research **special** site thing nearly sometimes exactly else performance brother turn us do next return list follow music effort early where blue `left` main piece property research cold order have need second situation purpose PM Mrs test can up case child special why space century thousand cup certain cell relationship success determine democratic where building again development last off any.
