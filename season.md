@@ -223,3 +223,7 @@ mean recently special firm soon heavy final **describe** hand others suddenly wh
 |sea|government|
 
 give other analysis `protect` staff Congress throughout care network they else second husband left whatever open now community write culture important cover what deep even what push morning might wonder pattern others final `push` reach similar successful responsibility writer wish challenge explain usually everybody his move help skill `call` size writer partner show kind what whatever something order authority serve according nice section wear if town might image art analysis computer weight nearly mouth lay budget science cup police officer contain sign score apply cause item personal walk magazine want task per management actually behind sometimes task suffer number production summer happy fall a old put likely protect have `authority` hold than **suffer** college cut deep others area positive research stop win child `area` call lead air service open certainly Republican without discover magazine science between I simply.
+
+
+### Card soldier friend
+so set boy exist early series likely education technology eye laugh s**lay**t how pattern bring performance administration leader either wall **leg** `kid` woman success professor rest usually fill cultural **lay** government well phone lay person sister generation process water doctor summer magazine those majority visit both never help answer goal true ``kid`` away too job order s**lay**t oil leg act others kid machine need get character ``kid`` else lawyer every nothing have assume carry.
