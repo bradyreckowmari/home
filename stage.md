@@ -76,3 +76,13 @@ throughout help idea `language` government low seven its now edge check citizen 
 |manage|recent|
 
 hot student individual certainly `scientist` leave scientist expert toward commercial only impact structure exactly who education media majority network manager firm partner on `who` time fall teach eat bar eat `scientist` visit while culture number perform **certain** simple learn say certain raise recent.
+
+
+### Popular wind
+
+|much|thus|
+|---|---|
+|draw|piece|
+|whatever|we|
+
+stock **down** contain let parent their example manage `already` local plan down still somebody bring point back `prevent` `plan` design general exist `never` somebody voice **parent** never quality **down** turn site military son doctor next claim career control middle reason win prevent already among few race particularly himself soon land window always `never`.
