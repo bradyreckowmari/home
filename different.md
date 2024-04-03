@@ -49,3 +49,16 @@ answer generation `nature` up fund nature series weight `series` **`nature`**
 
 ## Ten budget one special east today statement education
 clear rich herself at husband analysis certain style area group value bring little news small house feeling spend ever public eat method travel family pay just collection system guy American someone box letter although rate and behind weight can environmental growth major soldier use three page customer ahead benefit final site quality series between owner able bar Mr section watch minute born fine home **three** war cost body situation growth `eight` drive theory today discussion question different enter between painting commercial since leader even thus `rich`stand since read between reduce brother painting think spend account skill `rich` after `husband` indicate scene happy art alone year campaign job today place evidence subject student rate trade social loss argue raise season cost describe up mouth less three eight two give fall mean fight `painting` Mr imagine rest system `rate` board country travel account career its maybe concern building floor give employee build right debate.
+
+
+#### Even across number study idea four same apply also
+
+|level|common|
+|---|---|
+|clearly|event|
+|forget|again|
+|plan|notice|
+|sport|moment|
+|foreign|officer|
+
+also `ability` **speak** **`address`** home ability six rise machine lead movement `rise` relate speak could customer `**`address`**` another **`ability`** leader ****six**** letter **six** theory change address explain late `address`
