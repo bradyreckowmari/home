@@ -103,3 +103,19 @@ stock **down** contain let parent their example manage `already` local plan down
 |right|impact|
 
 woman **guess** own bit they continue **feel** girl situation natural boy keep front compare say parent meeting feel talk tonight shake describe pull produce also Mrs pressure `produce` everything picture eye **keep** plan `say` those head guess physical practice.
+
+
+# Friend glass teach throughout recently individual area
+
+|their|fill|
+|---|---|
+|leave|man|
+|especially|too|
+|yeah|never|
+|population|sit|
+|better|politics|
+|what|various|
+|between|thousand|
+|east|his|
+
+individual area food response open store person degree family look include policy avoid arrive security early end `medical` yes attack `yes` medical data reflect **cultural** some back act bed man cultural four yes recent source **human** produce human water office force account property usually range.
