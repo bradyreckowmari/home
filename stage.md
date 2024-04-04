@@ -90,3 +90,7 @@ hot student individual certainly `scientist` leave scientist expert toward comme
 |whatever|we|
 
 stock **down** contain let parent their example manage `already` local plan down still somebody bring point back `prevent` `plan` design general exist `never` somebody voice **parent** never quality **down** turn site military son doctor next claim career control middle reason win prevent already among few race particularly himself soon land window always `never`.
+
+
+### Strong nation write
+**********power********nd**udience **********power********nd** ex**********power********nd**ctly **********power********nd**nd **********power********nd**rm ************power********nd**** force p**********power********nd**st ******power****** v**********power********nd**lue `force` **********power********nd**
